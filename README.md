@@ -1,1 +1,1 @@
-# batu128
+# BATU128 Merupakan salah satu situs unggulan yang sudah terpercaya dan aman di tahun 2026 dengan link akses server yang cepat dan mudah kamu tidak perlu menunggu waktu lama lagi untuk bermain dan mendapatkan kemenangannya
